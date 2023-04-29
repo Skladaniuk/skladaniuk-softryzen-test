@@ -1,0 +1,1 @@
+# skladaniuk-softryzen-test
